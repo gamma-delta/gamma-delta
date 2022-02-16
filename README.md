@@ -1,4 +1,4 @@
-# `gamma-delta`
+# Welcome!
 
 - Name: Petrichor, Petra (for short)
 - Pronouns: she/her
